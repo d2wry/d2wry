@@ -13,3 +13,5 @@
 
 # [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
 ![](https://i.imgur.com/eifPuMz.jpg)
+
+   _and i will update more but later cuz i'm so lazy_

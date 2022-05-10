@@ -17,6 +17,11 @@
 # [Toy 2018-09-07](https://osuskins.net/skin/aXPIXmB)
 ![](https://user-images.githubusercontent.com/104754770/167575451-0b96f1ac-a814-4fd4-8bd8-7db1a42ed0d9.jpg)
 
+# [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
+![](https://user-images.githubusercontent.com/104754770/167585836-bc70e13b-f662-41b8-9356-1ba6e4820d90.jpg)
+
+
+
    # _and i will update more but later cuz i'm so lazy_
 ##### _(sorry for quality)_
    

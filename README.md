@@ -3,7 +3,7 @@
 
 
 # [Monko2k(Pastel)](https://monko2k.github.io/skins)
-![](https://monko2k.github.io/preview/skin21.jpg)
+![](https://user-images.githubusercontent.com/104754770/167575283-1bc9fc13-e528-40b0-91f7-dfd8ffe23ae6.jpg)
 
 # [Rafis 2018-03-26 HDDT](https://drive.google.com/file/d/1aJh7apqZTrXvWkwNVhzBfIVcG821hxx2/view)
 ![](https://user-images.githubusercontent.com/104754770/167323905-3b403dda-42b9-45c3-a142-0995f40383bf.jpg)
@@ -12,10 +12,11 @@
 ![](https://user-images.githubusercontent.com/104754770/167324286-6cf91b34-8903-43d7-9635-8fdbc299a1a8.jpg)
 
 # [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
-![](https://i.imgur.com/eifPuMz.jpg)
+![](https://user-images.githubusercontent.com/104754770/167573755-19f83e0c-da73-45b0-83b3-463e877fb3c6.jpg)
 
-# [Toy 2018-09-07]()
-![](https://user-images.githubusercontent.com/104754770/167522102-221aa759-d201-40aa-b33e-de1bba552add.jpg)
+# [Toy 2018-09-07](https://osuskins.net/skin/aXPIXmB)
+![](https://user-images.githubusercontent.com/104754770/167575451-0b96f1ac-a814-4fd4-8bd8-7db1a42ed0d9.jpg)
 
-   _and i will update more but later cuz i'm so lazy_
-
+   # _and i will update more but later cuz i'm so lazy_
+##### _(sorry for quality)_
+   

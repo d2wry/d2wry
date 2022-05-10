@@ -14,7 +14,7 @@
 # [- # Aristia(Edit)+trail # -](https://mega.nz/file/NuoSXI4J#0xzmrfLyW_6qXocF_NZcFlZ0--UmFvxEEtFRn7h98LI)
 ![](https://i.imgur.com/eifPuMz.jpg)
 
-# [Toy 3018-09-07](blob:https://osuskins.net/128ef8a8-6b52-4c13-8aac-a4091c7a21de)
+# [Toy 3018-09-07](https://osuskins.net/128ef8a8-6b52-4c13-8aac-a4091c7a21de)
 ![](https://user-images.githubusercontent.com/104754770/167522102-221aa759-d201-40aa-b33e-de1bba552add.jpg)
 
    _and i will update more but later cuz i'm so lazy_

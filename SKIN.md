@@ -20,6 +20,8 @@
 # [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
 ![](https://user-images.githubusercontent.com/104754770/167585836-bc70e13b-f662-41b8-9356-1ba6e4820d90.jpg)
 
+# [idke 1.2](https://drive.google.com/file/d/1-Riet4uU2Ckm-rCnEdLX6t1v_XbCbT-m)
+![](https://user-images.githubusercontent.com/104754770/168053406-1dc567fa-58b5-4ea8-b6bb-1d1f9079215f.jpg)
 
 
    # _and i will update more but later cuz i'm so lazy_

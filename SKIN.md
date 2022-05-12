@@ -23,6 +23,10 @@
 # [idke 1.2](https://drive.google.com/file/d/1-Riet4uU2Ckm-rCnEdLX6t1v_XbCbT-m)
 ![](https://user-images.githubusercontent.com/104754770/168053406-1dc567fa-58b5-4ea8-b6bb-1d1f9079215f.jpg)
 
+# [- # re;owoTuna v1.1 『Selyu』 # -](https://drive.google.com/file/d/1SVtUUvo4o2DUwQ1Pf2Xb0v4eDblvvovq)
+![](https://user-images.githubusercontent.com/104754770/168079225-91e96225-ced0-4c51-bb17-f6e218ac7a84.jpg)
+
+
 
    # _and i will update more but later cuz i'm so lazy_
 ##### _(sorry for quality)_

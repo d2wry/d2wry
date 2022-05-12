@@ -26,6 +26,10 @@
 # [- # re;owoTuna v1.1 『Selyu』 # -](https://drive.google.com/file/d/1SVtUUvo4o2DUwQ1Pf2Xb0v4eDblvvovq)
 ![](https://user-images.githubusercontent.com/104754770/168079225-91e96225-ced0-4c51-bb17-f6e218ac7a84.jpg)
 
+# [-         《CK》 Bacon boi 1.0 『blue』](https://drive.google.com/file/d/1JRDbxtEVFYMgt9ls4rvIRs2v0IfBddFO)
+![](https://user-images.githubusercontent.com/104754770/168080566-c9c32484-4e22-431b-95eb-7d684fd98fe3.jpg)
+
+
 
 
    # _and i will update more but later cuz i'm so lazy_
